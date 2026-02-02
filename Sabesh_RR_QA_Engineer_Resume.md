@@ -3,7 +3,7 @@
 **Aspiring QA Engineer | Software Tester | Automation Enthusiast**
 
 📍 Coimbatore, Tamil Nadu - 641001 | 📞 +91 9788649658 | ✉️ rrsabesh@gmail.com
-[LinkedIn](https://linkedin.com/in/your-profile) | [GitHub](https://github.com/SabeshRR) | [Portfolio](https://sabeshrr.github.io/portfolio)
+[LinkedIn](https://www.linkedin.com/in/r-r-sabesh-5173b7290) | [GitHub](https://github.com/SabeshRR) | [Portfolio](https://sabeshrr.github.io/portfolio)
 
 ---
 
